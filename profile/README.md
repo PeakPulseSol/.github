@@ -43,4 +43,4 @@ We're building a powerhouse of talent where developers, sales professionals, des
 
 **🔥 Building the Next Generation of Industry Leaders 🔥**
 
-[Join Us](https://join.peakpulsesol.com) • [Our Portfolio](https://peakpulsesol.com/portfolio) • [Contact](https://peakpulsesol
+[Join Us](https://join.peakpulsesol.com) • [Our WebSite](https://peakpulsesol.com/) • Email: client@peakpulsesol.com
